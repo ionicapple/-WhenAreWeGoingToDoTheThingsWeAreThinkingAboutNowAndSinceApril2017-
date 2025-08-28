@@ -25,3 +25,7 @@ but u were different on the phone when i called u in 2018, there were all these 
 i rememember thinking about the long pauses, they were like __hauntingly erie__, like i was worried about you, i swear i was obsessed with figuring out what those long pauses were on the phone where u didnt say anything they seemed so unnatural, i was like whats going on with u is everything ok u werent like this before
 
 afterwards, those haunting erie long pauses on the phone from u, were like staring at the color black or like being in the wilderness on like a dark and cold moon-less night, i could feel it there was something off, i still rememember, i was obsessed with figuring out what that was ... i remember the good stuff, but im telling u something was getting me obsessed with the long pauses on the phone
+
+i was watching this multiepisode mark twain documentary the week i first called u
+
+i mentioned this before but i kept the iphone i used to call u lol i dunno why!! i was like i cant mail it back after i got the newer one, and this was 2 iphones ago, i still have it lol
