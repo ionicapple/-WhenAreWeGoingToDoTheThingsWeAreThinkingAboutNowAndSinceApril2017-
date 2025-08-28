@@ -19,3 +19,5 @@ my thoughts were like extremely R-rated, i dunno why or how that happened they j
 i remember thinking when i was leaving that u were gonna miss me when i was gone lol
 
 bc when i was at penn, i had a coworker i was bffs with and i would not take days off bc she would miss me the entire day lol she would be like "i walked around campus for lunch and i had no one to talk to" and i was like ohh sht i feel bad for taking a day off now
+
+but u were different on the phone when i called u in 2018, there were all these erie long pauses where u didnt say anything and i was like huh what happened
