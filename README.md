@@ -10,11 +10,11 @@ then i sort of forgot about everything after i left
 
 https://www.youtube.com/watch?v=R8sFE8_usN0 thats what i was thinking ... that specific voice was in my head (im a huge futurama fan) lol
 
-then when my dad picked me up from the bus stop (i dunno why i didnt drive that morning i dunno) he asked how the interview was and i said "this guy was talking non stop for an hr and he was smarter than those penn people i was around" so i didnt remember anything by that time and i was just like, i need to figure out what im doing with my life like where am i going to move bc i was interviewing in ny/philly/boston
+then when my dad picked me up from the bus stop (i dunno why i didnt drive that morning i dunno) he asked how the interview was and i said "this guy was talking non stop for an hr and he was smarter than those penn people (potdocs/profs) i was around" so i didnt remember anything by that time and i was just like, i need to figure out what im doing with my life like where am i going to move bc i was interviewing in ny/philly/boston
 
 but now im like what were you thinking lol
 
-my thoughts were like extremely R-rated, i dunno why or how that happened they just were, thats just what was happening its so funny lol
+my thoughts were like extremely X-rated, i dunno why or how that happened they just were, thats just what was happening its so funny lol
 
 i remember thinking when i was leaving that u were gonna miss me when i was gone lol
 
