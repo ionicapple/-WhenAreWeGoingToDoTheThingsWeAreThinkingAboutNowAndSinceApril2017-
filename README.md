@@ -7,3 +7,5 @@ bc what i was thinking was "i get u, i get it, not here, not now, ur going to ge
 so i was the original non-responder, y'all just copied mee
 
 then i sort of forgot about everything after i left
+
+https://www.youtube.com/watch?v=R8sFE8_usN0 thats what i was thinking ... that specific voice was in my head (im a huge futurama fan) lol
