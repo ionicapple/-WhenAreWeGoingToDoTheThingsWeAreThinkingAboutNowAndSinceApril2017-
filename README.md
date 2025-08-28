@@ -20,4 +20,4 @@ i remember thinking when i was leaving that u were gonna miss me when i was gone
 
 bc when i was at penn, i had a coworker i was bffs with and i would not take days off bc she would miss me the entire day lol she would be like "i walked around campus for lunch and i had no one to talk to" and i was like ohh sht i feel bad for taking a day off now
 
-but u were different on the phone when i called u in 2018, there were all these erie long pauses where u didnt say anything and i was like huh what happened
+but u were different on the phone when i called u in 2018, there were all these erie long pauses where u didnt say anything and i was like huh what happened, a little moody, and u sounded so sad when u were like "you should be here" and i didnt inquire further bc i was like, well why am i not then like what happened but i didnt ask what happened
