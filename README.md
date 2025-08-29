@@ -12,7 +12,7 @@ https://www.youtube.com/watch?v=R8sFE8_usN0 thats what i was thinking ... that s
 
 then when my dad picked me up from the bus stop (i dunno why i didnt drive that morning i dunno) he asked how the interview was and i said "this guy was talking non stop for an hr and he was smarter than those penn people (potdocs/profs) i was around" so i didnt remember anything by that time and i was just like, i need to figure out what im doing with my life like where am i going to move bc i was interviewing in ny/philly/boston
 
-but now im like what were you thinking lol
+[but now im like what were you thinking lol](https://www.youtube.com/watch?v=Dwzk-XZxZ4k)
 
 my thoughts were like extremely X-rated, i dunno why or how that happened they just were, thats just what was happening its so funny lol
 
